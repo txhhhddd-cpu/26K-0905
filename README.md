@@ -14,6 +14,7 @@
 * Git and GitHub
 * Microsoft Office
 * Problem Solving
+* Python Programming
 
 ## Projects
 
