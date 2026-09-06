@@ -1,4 +1,4 @@
-![Profile Picture](https://img.magnific.com/free-vector/8000-210_138676-7714.jpg?semt=ais_hybrid&w=740&q=80)
+![Profile Picture]()
 
 # Taheen Durrani
 
