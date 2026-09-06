@@ -1,4 +1,4 @@
-![Profile Picture]()
+![Profile Picture](https://github.com/txhhhddd-cpu/26K-0905/blob/main/e08e5096-a8a7-4f62-837d-53172fe95bd6.jpg)
 
 # Taheen Durrani
 
